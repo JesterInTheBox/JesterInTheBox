@@ -1,16 +1,14 @@
-## Hi there 👋
+## Call Me Dawn! 
+<img width="434" height="268" alt="tumblr_c5fda7f8d22621499b817eada6bd9fa3_b27f8e28_500" src="https://github.com/user-attachments/assets/a8db9ef5-e06f-4d20-a6ca-4bdaca18f51e" />
 
-<!--
-**JesterInTheBox/JesterInTheBox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+* I am a MINOR, and I use any and all pronouns *(even neos!)*
 
-Here are some ideas to get you started:
+* Fandoms change a lot, but most can be seen on my strawpage
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+* I draw a lot, but often do not show it to others
+
+* If from Pony Town, **C+H is alright, and is encouraged!**
+
+* ***REMEMBER THAT I AM A MINOR AND I DO NOT LIKE WEIRD JOKES MADE TOWARDS ME.***
+
+         - https://dononulls.straw.page -
